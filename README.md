@@ -1,2 +1,2 @@
 # Plano de planejamento
-(em elaboração)
+(em construção)
